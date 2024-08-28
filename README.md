@@ -3,7 +3,7 @@
 
 <p align="left"> <img src="https://komarev.com/ghpvc/?username=bhargavigowda1810&label=Profile%20views&color=0e75b6&style=flat" alt="bhargavigowda1810" /> </p>
 
-- 📫 How to reach me **bhargavigowda619@gmail.coms**
+- 📫 How to reach me **bhargavigowda619@gmail.com**
 
 - ⚡ Fun fact **I AM FUNNY**
 
