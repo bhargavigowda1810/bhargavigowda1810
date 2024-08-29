@@ -5,7 +5,6 @@
 
 - 📫 How to reach me **bhargavigowda619@gmail.com**
 
-- ⚡ Fun fact **I AM FUNNY**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
